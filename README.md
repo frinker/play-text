@@ -1,12 +1,12 @@
-# More Than a Tairy Tale
+# More Than a Fairy Tale
 
 >Q1:The clear contrast between good and evil helps preschool children understand basic moral values.
 
 >Q2:Fairy tales create a positive childhood environment for playing, acting, and learning together where the real rewards can last a lifetime. 
 
-#### Getting real lessons from fairy tales
+## Real lessons from fairy tales
 
-Fairy tales are more than just light entertainment, they help teach the basics of social behavior. Ever think about the messages hidden in your favorite  fairy tales?
+**Fairy tales are more than just light entertainment, they help teach the basics of social behavior. Ever think about the messages hidden in your favorite  fairy tales?**
 
 #### A life message from another world 
 
